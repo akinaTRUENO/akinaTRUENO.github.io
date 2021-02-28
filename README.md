@@ -1,2 +1,2 @@
 # akinaTRUENO.github.io
-personal website
+Welcome, my firends! This is Doukawa's personal website
